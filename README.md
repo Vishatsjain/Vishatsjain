@@ -33,7 +33,7 @@
 ## 📞 Contact Me
 
 - 📧 Email: vishatsjain@gmail.com
-- 🔗 LinkedIn: [Vishat Jain](https://www.linkedin.com/in/vishatsjain)
+- 🔗 LinkedIn: [Vishat Jain](https://www.linkedin.com/in/vishatjain)
 - 🌐 Portfolio: [vishatjain.com](https://www.vishatjain.wordpress.com)
 
 ✨ Let's connect and collaborate!
